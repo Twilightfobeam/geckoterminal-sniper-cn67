@@ -1,4 +1,4 @@
-# 
+# secure geckoterminal sniper bot | sandwich-attack-execution + front-running offers the most advanced geckoterminal sniper bot, with sandwich-attack-execution and front-running.
 
 
 
